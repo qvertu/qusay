@@ -146,7 +146,7 @@ _**Amazing grace how sweet the sound, That saved a wretch like me.**_
 博士双手握住了阳的一根肋骨，使劲全身力气用力一掰，伴随着一声让人毛骨悚热的巨响，实习研究员惊恐地看着这个变得陌生起来的上司。
 在无影灯下，他脸上的疯狂与狂热一览无余，这个恶魔高扬起头，把肋骨下缘塞进了嘴里，闭上眼贪婪地吸着，咋嘴和吮吸声回荡在实验室里，久久没有散去。
 研究员战栗着把针头插进赤狐的脖颈，望着他越来越颤动的眼睑，不由自主咽了一口唾沫，而转身和一脸享受的博士擦肩走过，他的手几乎握不住注射器了。
-“_**Through many dangers toils and snares. We have already come！T'was Grace that brought us safe thus far and grace will lead us home.**_”
+_“**Through many dangers toils and snares. We have already come！T'was Grace that brought us safe thus far and grace will lead us home.**”_
 如此圣洁的歌声出现在这处地狱般的监牢里，怪诞得让人害怕，博士激动神情地唱诵着，他的确是一个好歌手，旋律如此神圣，婉转而……虔诚，热泪顺着他的脸颊流下，他又像是瞻仰般，双手把那节肋骨高举过头顶，维持了许久，许久……
 
 赤狐微微睁开了眼。
@@ -193,13 +193,13 @@ _**Amazing grace how sweet the sound, That saved a wretch like me.**_
 博士疯狂地大笑着，笑声凄厉可怖，和尖锐的电机声一起奏出了恶魔般的嚎叫。
 惨叫声没有出现，或者说太过低微，被尽数掩藏了。赤狐高扬昂着头，仅剩的那微小新生的左肺支撑不起沙哑微弱的叫声，它们仅仅是刚飞出枯涩的喉咙就已经消磨殆尽。赤狐的全身都紧绷着，肌肉暴起，热泪再度顺着脸颊的毛发流淌而下。
 痛……剧痛……肌肉被割裂，骨粉被热血冲着一并飞洒着。洁白的实验服被血污弥盖，护目镜上的黑血也需要一遍遍擦拭，博士亢奋地唱着。
-“_**Amazing grace——How sweet the sound，that saved a wretch like me——**_”
+_“**Amazing grace——How sweet the sound，that saved a wretch like me——**”_
 
 阳只想死，他恨自己为什么没有死去的权利，为什么自己生来就不能化作尘土，或者被碾作湮粉，为什么偏偏是自己要经受这非人的折磨，如果现在就可以结束这一切，他想要有人把那断罪的剑立刻刺进自己的喉咙，可，并没有这样的救赎。
 为什么……为什么……
 让人癫狂的剧痛不知持续了多久，阳也不知道自己就这样僵硬着多久，他只觉得到后来痛觉似乎都不那么明显了，感觉似乎那些都成了陪伴着自己的伙伴，那些苦痛，值得歌颂着。
 他可以在隆隆的电机声里分辨出切割股骨的噪音，血管断裂的泼溅，甚至还有肌腱崩塌的轰鸣。那是如此熟悉，如此地让人……胆战心惊。
-“_**I once was lost but now I'm found, was blind but now I see, was blind but now I see!!**_”
+_“**I once was lost but now I'm found, was blind but now I see, was blind but now I see!!**”_
 
 隆隆的电机声停下了，整个实验室里一片寂静，只有博士粗重的呼吸声。他哐一声把电锯丢在地上，目光游离地向前走去，他走到赤狐脸边，看着他麻木的脸出神。沾满血污的手轻轻按在他的额头，让人有些惧怕地爱抚着，血腥无比。
 “阳，该休息了……你做得很好。”
@@ -254,7 +254,7 @@ _**Amazing grace how sweet the sound, That saved a wretch like me.**_
 那双手握住了还在跃动的心脏。
 那颗心脏还散发着美妙的微光。
 然后握了下去。
-“_**Through many dangers toils and snares， we have already come. T'was Grace that brought us safe thus far……**_”
+_“**Through many dangers toils and snares， we have already come. T'was Grace that brought us safe thus far……**”_
 音乐戛然而止。
 
 **Xxxx年xx月xx日（信息被涂抹）**
@@ -281,7 +281,7 @@ _**Amazing grace how sweet the sound, That saved a wretch like me.**_
 他这么安慰自己，努力驱散盘踞在心头的背德之意，是，自己怎么说也是个健全的雄性。
 偶尔放纵一下自己，也没什么不好吧，这可是假期诶！
 于是他又有些遗憾地，一边摘下周身到处都是的电极片，一边继续舒展身体，顺便回味昨天那难得的快感与释放。
-“_**Amazing grace, How sweet the sound, that saved a wretch like me, I once was lost but now am found, was blind but now I see.**_”
+_“**Amazing grace, How sweet the sound, that saved a wretch like me, I once was lost but now am found, was blind but now I see.**”_
 摘下了套着吻部的坚韧口枷，他轻轻的哼唱着，从身下摸出了手机，竟有几个未接来电。还有一条来自那个家伙的讯息。
 “怎么是他？”
 他看着手机上的讯息，把乳头上那一株小白花掐了下来，轻轻吹散了，然后拨起了那个号码。
