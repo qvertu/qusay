@@ -199,7 +199,7 @@ _“**Amazing grace——How sweet the sound，that saved a wretch like me——
 为什么……为什么……
 让人癫狂的剧痛不知持续了多久，阳也不知道自己就这样僵硬着多久，他只觉得到后来痛觉似乎都不那么明显了，感觉似乎那些都成了陪伴着自己的伙伴，那些苦痛，值得歌颂着。
 他可以在隆隆的电机声里分辨出切割股骨的噪音，血管断裂的泼溅，甚至还有肌腱崩塌的轰鸣。那是如此熟悉，如此地让人……胆战心惊。
-_“**I once was lost but now I'm found, was blind but now I see, was blind but now I see!!**”_
+_**I once was lost but now I'm found, was blind but now I see, was blind but now I see!!**_
 
 隆隆的电机声停下了，整个实验室里一片寂静，只有博士粗重的呼吸声。他哐一声把电锯丢在地上，目光游离地向前走去，他走到赤狐脸边，看着他麻木的脸出神。沾满血污的手轻轻按在他的额头，让人有些惧怕地爱抚着，血腥无比。
 “阳，该休息了……你做得很好。”
@@ -212,7 +212,7 @@ _“**I once was lost but now I'm found, was blind but now I see, was blind but 
 赤狐混沌的眼睛无神望向远处，几个实验员推着他的腿转进了另一个隔间里，有什么仪器运转的声音传了出来。
 “你知道吗……”
 博士凑到了赤狐的耳边，几乎咬住了他的耳朵，轻柔而痴迷的话语传了进来。
-“你的肢体在离开身体后还能保有一定的生命力，我就把它们收了起来，创造了这个世界上最伟大的造物——Amazing grace，How sweet the sound——”
+“你的肢体在离开身体后还能保有一定的生命力，我就把它们收了起来，创造了这个世界上最伟大的造物——_**Amazing grace，How sweet the sound——**_”
 阳的表情出现了点裂痕，但他还没有完全理解这句话的意思，知道——他看见那个怪物出现在门的那头，他的呼吸骤然停止了。
 那里矗立着一个他。
 又不是他。
@@ -281,8 +281,9 @@ _“**Through many dangers toils and snares， we have already come. T'was Grace
 他这么安慰自己，努力驱散盘踞在心头的背德之意，是，自己怎么说也是个健全的雄性。
 偶尔放纵一下自己，也没什么不好吧，这可是假期诶！
 于是他又有些遗憾地，一边摘下周身到处都是的电极片，一边继续舒展身体，顺便回味昨天那难得的快感与释放。
-_“**Amazing grace, How sweet the sound, that saved a wretch like me, I once was lost but now am found, was blind but now I see.**”_
-摘下了套着吻部的坚韧口枷，他轻轻的哼唱着，从身下摸出了手机，竟有几个未接来电。还有一条来自那个家伙的讯息。
+摘下了套着吻部的坚韧口枷，他轻轻的哼唱着。
+_**Amazing grace, How sweet the sound, that saved a wretch like me, I once was lost but now am found, was blind but now I see.**_
+从身下摸出了手机，竟有几个未接来电。还有一条来自那个家伙的讯息。
 “怎么是他？”
 他看着手机上的讯息，把乳头上那一株小白花掐了下来，轻轻吹散了，然后拨起了那个号码。
 “曲，什么事？啊……行啊，周末来我这里，我给你做些好吃的。想吃什么……？都行啦，哦对了，上次给你买了几个小王子的周边，记得来拿一下——”
