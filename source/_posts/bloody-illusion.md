@@ -146,7 +146,7 @@ _**Amazing grace how sweet the sound, That saved a wretch like me.**_
 博士双手握住了阳的一根肋骨，使劲全身力气用力一掰，伴随着一声让人毛骨悚热的巨响，实习研究员惊恐地看着这个变得陌生起来的上司。
 在无影灯下，他脸上的疯狂与狂热一览无余，这个恶魔高扬起头，把肋骨下缘塞进了嘴里，闭上眼贪婪地吸着，咋嘴和吮吸声回荡在实验室里，久久没有散去。
 研究员战栗着把针头插进赤狐的脖颈，望着他越来越颤动的眼睑，不由自主咽了一口唾沫，而转身和一脸享受的博士擦肩走过，他的手几乎握不住注射器了。
-_“**Through many dangers toils and snares. We have already come！T'was Grace that brought us safe thus far and grace will lead us home.**”_
+_**Through many dangers toils and snares. We have already come！T'was Grace that brought us safe thus far and grace will lead us home.**_
 如此圣洁的歌声出现在这处地狱般的监牢里，怪诞得让人害怕，博士激动神情地唱诵着，他的确是一个好歌手，旋律如此神圣，婉转而……虔诚，热泪顺着他的脸颊流下，他又像是瞻仰般，双手把那节肋骨高举过头顶，维持了许久，许久……
 
 赤狐微微睁开了眼。
