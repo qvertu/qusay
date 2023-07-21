@@ -5,13 +5,12 @@
 # Site
 title: Qusay的幻想书阁
 subtitle: "(也许NSFW 背后注意捏）"
-description: "兴趣使然，也许文字也可以成为见证，作为存在的证明和承载，于是我开始学着写东西，就是这样。进来看看吧。"——Qusay
+description: |
+  "兴趣使然，也许文字也可以成为见证，作为存在的证明和承载，于是我开始学着写东西，就是这样。进来看看吧。"——Qusay
 keywords:
-author: Qusay 
+author: Qusay
 language: en
 timezone: ""
-
-
 
 # URL
 ## Set your site url here. For example, if you use GitHub Page, set url as 'https://username.github.io/project'
